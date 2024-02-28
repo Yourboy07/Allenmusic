@@ -1,5 +1,5 @@
 <h2 align="center">
-    ──「 ᴀɴᴏɴ ダ ᴍᴜsɪᴄ 」──
+    ──「 𝑟𝑒𝑛 ダ 𝑚𝑢𝑠𝑖𝑐 」──
 </h2>
 
 <p align="center">
